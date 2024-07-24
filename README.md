@@ -1,0 +1,1 @@
+# projeto.-paulo.-freire-2024q.ruan
